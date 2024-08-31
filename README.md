@@ -6,4 +6,4 @@ Kontuch Suksawat
 Pattanachai Phanket
 Pisit klinnoy
 jittakhon junsung 
-kim lor sood 
+aum lor sood
