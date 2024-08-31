@@ -5,6 +5,4 @@ Puratsakorn Kietnonthapat
 Kontuch Suksawat
 Pattanachai Phanket
 Pisit klinnoy
-test
-PSU888 Webparnan
-420356
+jittakhon junsung 
